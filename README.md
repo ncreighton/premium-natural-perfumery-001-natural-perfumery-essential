@@ -1,0 +1,2 @@
+# premium-natural-perfumery-001-natural-perfumery-essential
+Tired of scribbling essential oil ratios on sticky notes and losing your best perfume formulas? Your creative chaos ends here.  The Natural Perfumery &amp; Essential Oil Blending Lab turns your Notion workspace into a structured perfumer's lab notebook. No more forgotten blends or guesswork—log every drop, track aging, and refine your signature scents
